@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Laura Psheunova built the Inbox app as a Free app. This SERVICE is provided by Laura Psheunova at no cost and is intended for use as is.
+Laura Psheunova built the Completable app as a Free app. This SERVICE is provided by Laura Psheunova at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
